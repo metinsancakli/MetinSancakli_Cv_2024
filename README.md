@@ -1,0 +1,1 @@
+# MetinSancakli_Cv_2024
